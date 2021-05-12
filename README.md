@@ -1,0 +1,1 @@
+# android_device_walton_Primo_S7
